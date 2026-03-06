@@ -4,8 +4,8 @@ names ー Divine / spawnzy / tenshi
 
 interests ー rainworld, dandys world, vrc, bsd, mo4, hollow knight, madoka, magical girls.
 
-flags ー ![image](https://github.com/user-attachments/assets/b4912cc7-f399-4cee-a8d3-b552595ef809)
-
-
+sexuality/gender ー bi / trans
 
 status 
+
+online
